@@ -1,5 +1,10 @@
 # CinemaSuperSwag
 il nostro cinema
+chi siamo?😱
+-Frison Giulia
+-Goumaih Sabrina
+-Rancan Simone
+-Soccol Gabriel
 
 link google documenti
 https://docs.google.com/document/d/1dXmqFLmK5UPxFnNMuCsBtKHET9E0cSyo42aivp-yi2A/edit?pli=1
